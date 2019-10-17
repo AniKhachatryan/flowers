@@ -2,6 +2,6 @@ Thanks to billions of years of evolution and thousands of years of technological
 
 How cool is that!
 
-#StartupCulture #AR #VR #blockchain #bitcoin #future #AI #ML #BS
-
 https://anikhachatryan.github.io/flowers/
+
+#StartupCulture #AR #VR #blockchain #bitcoin #future #AI #ML #BS
